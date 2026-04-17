@@ -1,4 +1,4 @@
-![github-banner](https://github.com/danilodelara/about/blob/main/ChatGPT%20Image%2017%20de%20abr.%20de%202026%2C%2017_40_59.png)
+![github-banner](https://github.com/danilodelara/danilodelara/blob/main/pxfuel.jpg)
 
 <h1>👋 Fala aí! Prazer em te ver por aqui.</h1>
 
